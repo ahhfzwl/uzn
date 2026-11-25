@@ -1,4 +1,8 @@
 ```
+https://xduo.bbroot.com/cat/index.js.md5
+```多多纯净软件分享
+
+```
 https://kix.wesh.eu.org/dist/index.js.md5
 ```
 ```
